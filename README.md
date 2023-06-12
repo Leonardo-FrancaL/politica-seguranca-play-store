@@ -1,0 +1,1 @@
+# politica-seguranca-play-store
